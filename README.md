@@ -10,8 +10,8 @@ Serbay Serpen
 
   LinkedIn: www.linkedin.com/in/serbay-serpen-814308293
 
-  Instagram: serbayserpen (private account)
-             serbaybuilds (public account)
+  Instagram: serbayserpen (private account)-->https://www.instagram.com/serbayserpen/
+             serbaybuilds (public account)--->https://www.instagram.com/serbaybuilds/
 
 Fun Fact: I don't exactly know any topic that I work on or make a project on, nor do I have master's experience in that field. I learn the field while doing the project. I learn it from the beginning when I do a project.
 
