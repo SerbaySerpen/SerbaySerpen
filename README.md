@@ -10,14 +10,18 @@ Serbay Serpen
 
 -Suitable for teamwork.
 
+
 -How to reach me:
   E-mail: 1. serbayserpen@ug.bilkent.edu.tr
+          
           2. serbayserpen@hotmail.com
+
 
   LinkedIn: www.linkedin.com/in/serbay-serpen-814308293
 
-  Instagram: serbayserpen (private account)-->https://www.instagram.com/serbayserpen/
-             serbaybuilds (public account)--->https://www.instagram.com/serbaybuilds/
+  Instagram: 1. serbayserpen (private account)-->https://www.instagram.com/serbayserpen/
+             
+             2. serbaybuilds (public account)--->https://www.instagram.com/serbaybuilds/
 
 Fun Fact: I don't exactly know any topic that I work on or make a project on, nor do I have master's experience in that field. I learn the field while doing the project. I learn it from the beginning when I do a project.
 
