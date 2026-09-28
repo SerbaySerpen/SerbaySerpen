@@ -1,9 +1,15 @@
 Serbay Serpen
+
 -A curious and innovative researcher
+
 -Computer Engineering freshman at Bilkent University
+
 -Article & blog author
+
 -Project experiences resulting in first-place awards at TEKNOFEST.
+
 -Suitable for teamwork.
+
 -How to reach me:
   E-mail: 1. serbayserpen@ug.bilkent.edu.tr
           2. serbayserpen@hotmail.com
